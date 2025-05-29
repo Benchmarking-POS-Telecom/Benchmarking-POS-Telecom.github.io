@@ -11,4 +11,4 @@ Dar visibilidade e credibilidade ao empreendimento através da criação de um w
 
 ##### 📱 Criação de Perfis em Redes Sociais
 
-##### 📧 E-mail Institucional
+##### 📧 Criação de E-mail Institucional
